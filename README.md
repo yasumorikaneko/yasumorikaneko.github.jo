@@ -1,0 +1,1 @@
+# yasumorikaneko.github.jo
